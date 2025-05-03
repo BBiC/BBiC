@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @BBiC
-feel free to contact me : bbic531692381@gmail.com
+- 👋 Hi, I’m Rookie RP
+feel free to contact me : 21052221g@connect.polyu.hk
